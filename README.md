@@ -1,4 +1,4 @@
-### Olá 👋
+### Olá, me chamo Mychael 👋
 
 - Programador e Designer;
 - Estudante da UESC;
